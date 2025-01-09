@@ -1,5 +1,5 @@
 # Portfolio of YYY
-## 1.复旦英文官方公众号推文与摄影代表作
+## 1.复旦英文官方公众号推文与摄影 部分
 [How did this amateur botanist celebrate China-France friendship?](https://mp.weixin.qq.com/s/FDg0JIh_J9j5_QIlJCo8Fw)  
 
 [Get to know Rye Theatre, Fudan’s English-language theatre](https://mp.weixin.qq.com/s/4ZJKWRfveRqNeugH-_IzsA)
